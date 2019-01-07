@@ -1,2 +1,2 @@
-# avishya103.github.io
+# avishyaarali.github.io
 Welcome to my portfolio !
